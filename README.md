@@ -1,0 +1,2 @@
+# dane
+SMK YASBAM
